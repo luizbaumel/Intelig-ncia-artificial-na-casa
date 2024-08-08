@@ -1,1 +1,1 @@
-# Intelig-ncia-artificial-na-casa
+# Inteligencia-artificial-na-casa
